@@ -1,3 +1,4 @@
-<img width="480" height="320" alt="HwqKkxIDZjiklu6v1n" src="https://github.com/user-attachments/assets/d05e71e6-28bc-4256-ada6-69a017e03070" />
+<img width="480" height="270" alt="syXM8v3uwUUYytu2Vw" src="https://github.com/user-attachments/assets/7867667e-4677-4fa8-b639-c09679721fbf" />
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤ[nikushimi's atabook](https://excalibur.atabook.org/) 
